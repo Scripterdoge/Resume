@@ -1,4 +1,4 @@
-![image](https://github.com/Scripterdoge/Resume.md/assets/54847959/fe9f4f5d-adde-45e5-ad08-49be8441db4c)## Before University Graduation
+## Before University Graduation
 1. First Prize in the China Electronic Forensics Competition
 ![image](https://github.com/Scripterdoge/Resume.md/assets/54847959/fa98d46a-95a9-4ee4-a3ff-074a1cba14f9)
 
